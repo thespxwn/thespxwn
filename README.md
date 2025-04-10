@@ -7,7 +7,7 @@
 ***About me! ^^:***
 
 Hii, im Two Time / Finn 
-- Please do not int if ur under 13, 13 is even on thin ice.
+- I am a DID system, be paitent with us please.
 - Beware that my mood and typing changes at times and i tend to be dry from time to time, please tell me if tone tags are needed.
 - ***DO NOT*** hate on my intrest's in front of me, if you don't like it that's fine; but i will be upset.
 - c+h freely but if im sitting with my friends please do not do this.
@@ -16,7 +16,7 @@ Hii, im Two Time / Finn
 
 ***Pronounz!:***
 
-- I go by He : It : ***Thing PLEASE DO NOT USE THEY***
+- I go by He : It : Thing ***PLEASE DO NOT USE THEY***
 - I do not want to be refered to anything other than a MAN please.
 
  ***Some interestzz:***
