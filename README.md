@@ -14,6 +14,7 @@ Hii, im Two Time / Finn
 - Most of the time i am either offtab or s-afk so its better if you whisper to interact, beware it may take me a moment
 - If im making you uncomfortable or anything TELL ME, i am NOT a mind reader.
 ![](https://i.postimg.cc/wThrVZK4/IMG-6285.png)
+
 ***Pronounz!:***
 
 - I go by He : It : Thing ***PLEASE DO NOT USE THEY***
@@ -40,6 +41,7 @@ Hii, im Two Time / Finn
 - Sapphire / Chishiya; this is literally like my best frined like omg 
 - Tex; HHIHIHI this is like one of my online parents i love him smsmsm hiii
 ![](https://i.postimg.cc/YCMsyRMr/IMG-6286.png)
+
 ***BYI!:***
 
 - I AM VERY BLUNT AND TEND TO BE RUDE WHEN I AM UPSET, this does not mean you;ve done anything, and this DOESNT MEAN IM TAKING IT OUT ON YOU, it is difficult to control how i type or talk in my moments, i too have my own issues.
