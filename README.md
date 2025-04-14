@@ -2,7 +2,7 @@
 
 # *WELCOME !!*
 
-![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYqPt9i5qnMz0b9EFV69SYbGdMREqE4WAMEbz7U-pg_5D2JBY:https://i.ytimg.com/vi/r7tj9wBRFn4/hq720.jpg%3Fsqp%3D-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD%26rs%3DAOn4CLAdbxV7_JL8WniAxSExcH7MuOATXQ&s)
+![image](https://i.postimg.cc/SR9vHtns/IMG-6283.png)
 
 ***About me! ^^:***
 
@@ -13,7 +13,7 @@ Hii, im Two Time / Finn
 - c+h freely but if im sitting with my friends please do not do this.
 - Most of the time i am either offtab or s-afk so its better if you whisper to interact, beware it may take me a moment
 - If im making you uncomfortable or anything TELL ME, i am NOT a mind reader.
-
+![](https://i.postimg.cc/wThrVZK4/IMG-6285.png)
 ***Pronounz!:***
 
 - I go by He : It : Thing ***PLEASE DO NOT USE THEY***
@@ -39,7 +39,7 @@ Hii, im Two Time / Finn
 - Felix ; AUGHGHGHS i love playing games with you, ur nice 2 talk to ^^ i value pur friend shipp ILYY/p
 - Sapphire / Chishiya; this is literally like my best frined like omg 
 - Tex; HHIHIHI this is like one of my online parents i love him smsmsm hiii
-
+![](https://i.postimg.cc/YCMsyRMr/IMG-6286.png)
 ***BYI!:***
 
 - I AM VERY BLUNT AND TEND TO BE RUDE WHEN I AM UPSET, this does not mean you;ve done anything, and this DOESNT MEAN IM TAKING IT OUT ON YOU, it is difficult to control how i type or talk in my moments, i too have my own issues.
@@ -55,6 +55,8 @@ Hii, im Two Time / Finn
 - I TEND TO GO SILENT OR NON VERBAL AT TIMES, do not take this as an offense to YOU as i have a life behind a screen.
 - Do not vent to me unless you're a friend/close friend please, and if so pleasse ask !
 
+![](https://i.postimg.cc/wThrVZK4/IMG-6285.png)
+
 ***DNI:***
 
 - People who I blocked, unfriended(WITH REASON)
@@ -65,4 +67,4 @@ Hii, im Two Time / Finn
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
 - TALKING ABOUT PAST TRAUMA.
 
-
+![](https://i.postimg.cc/L5FTg4s9/IMG-6287.png)
