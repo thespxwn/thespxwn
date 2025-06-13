@@ -36,8 +36,6 @@ Hii, im Two Time / Finn
 
 - THE PEOPLE !! ; Noelle, Leen, Phe, Aiden, Mimi I LOVE YOU GUYS
 - Elaine ; Shes so sweet but she pmooooo ily /lh
-- Mikey ; Hanging out and getting to know you more is amazing!! ILY
-- Felix ; AUGHGHGHS i love playing games with you, ur nice 2 talk to ^^ i value pur friend shipp ILYY/p
 - Sapphire / Chishiya; this is literally like my best frined like omg 
 - Tex; HHIHIHI this is like one of my online parents i love him smsmsm hiii
 ![](https://i.postimg.cc/YCMsyRMr/IMG-6286.png)
