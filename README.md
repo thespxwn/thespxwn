@@ -2,7 +2,7 @@
 
 # *WELCOME !!*
 
-![image](https://i.postimg.cc/SR9vHtns/IMG-6283.png)
+![image](https://i.postimg.cc/3Nwy87Pb/IMG-7960.gif)
 
 ***About me! ^^:***
 
