@@ -54,6 +54,7 @@ Hii, im Two Time / Finn
 - I AM A SYSTEM !! PLEASEEE if you are unaware who is fronting please ask!! ( most of the time it is known by our pony or discord status.)
 - I TEND TO GO SILENT OR NON VERBAL AT TIMES, do not take this as an offense to YOU as i have a life behind a screen.
 - Do not vent to me unless you're a friend/close friend please, and if so pleasse ask !
+- WE DO SMOKE AND DRINK!! If you are uncomfortable with that its best to not interact, as we smoke for our medication. Medicinal.
 
 ![](https://i.postimg.cc/x1FVhQR1/IMG-7961.png)
 
@@ -62,7 +63,7 @@ Hii, im Two Time / Finn
 - People who I blocked, unfriended(WITH REASON)
 - ALFREDS PLAYHOUSE DNI.
 - Smiling friends (THIS ONLY GOES TO ME, not headmates)
-- ENDOS BIG BIG DNI.
+- FAKECLAIMERS BIG BIG DNI.
 - CREEPS, WEIRDOS, PDFS LARGE DNI!!
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
 - TALKING ABOUT PAST TRAUMA.
