@@ -68,5 +68,6 @@ Hii, im Two Time / Finn
 - CREEPS, WEIRDOS, PDFS LARGE DNI!!
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
 - TALKING ABOUT PAST TRAUMA.
+- BONELACE AND ANYONE ASSOICATED. When we tried to be friends with them and through the entire friendship would belittle me, insult me, and call me names. Continues to tell people that I ATTACKED THEM when i was simply speaking up about the rude things theyve done. and i have screenshots of all the horrible shit hes said to me, so if you assosiate with someone who harasses minors, dni.
 
 ![](https://i.postimg.cc/x1k90qqz/IMG-7962.gif)
