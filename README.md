@@ -69,7 +69,6 @@ one of our main fronters is Finn dont get us mixed up
 - CREEPS, WEIRDOS, PDFS LARGE DNI!!
 - RACISMS , HOMOPHOBIA, ANYTHING ALONG THE LINES OF A BASIC DNI, DONT.
 - TALKING ABOUT PAST TRAUMA.
-- BONELACE AND ANYONE ASSOICATED. When we tried to be friends with them and through the entire friendship would belittle me, insult me, and call me names. They continue to tell people i would flirt with him but im affection towards all of my friends, not once have i said i loved them romantically, ive ALWAYS used tonetags. Continues to tell people that I ATTACKED THEM when i was simply speaking up about the rude things theyve done. and i have screenshots of all the horrible shit hes said to me, so if you assosiate with someone who harasses minors, dni.
-- https://docs.google.com/document/d/1-RBAT6CXtt-bKJBntSqq8H1KCUnWMA0nGNlbk6rhYzw/edit?usp=drivesdk
+- people we have blocked.
 
 ![](https://i.postimg.cc/x1k90qqz/IMG-7962.gif)
