@@ -9,7 +9,7 @@
 Hii, im Two Time / Phinn 
 one of our main fronters is Finn dont get us mixed up
 - I am a DID system, be paitent with us please.
-- DNI IF YOU ARE IN YOUR 20S AND ACT LIKE A CHILD. I dont like sensitive people and wont change for you LMAOOOOOO.
+- DNI IF YOU ARE IN YOUR AN ADULT AND ACT LIKE A CHILD. I dont like sensitive people and wont change for you.
 - Beware that my mood and typing changes at times and i tend to be dry from time to time, please tell me if tone tags are needed.
 - ***DO NOT*** hate on my intrest's in front of me, if you don't like it that's fine; but i will be upset.
 - c+h freely but if im sitting with my friends please do not do this.
