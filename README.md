@@ -6,12 +6,12 @@
 
 ***About me! ^^:***
 
-Hii, im Two Time / Phinn 
+Hii, im Ribbit / Phinn 
 one of our main fronters is Finn dont get us mixed up
-- I am a DID system, be paitent with us please.
-- DNI IF YOU ARE IN YOUR AN ADULT AND ACT LIKE A CHILD. I dont like sensitive people and wont change for you.
-- Beware that my mood and typing changes at times and i tend to be dry from time to time, please tell me if tone tags are needed.
-- ***DO NOT*** hate on my intrest's in front of me, if you don't like it that's fine; but i will be upset.
+- I am a DID system, be patient with us please.
+- DNI IF YOU ARE IF YOUR AN ADULT AND ACT LIKE A CHILD. I dont like sensitive people and wont change for you.
+- Beware that my mood and typing changes at times and I tend to be dry from time to time, please tell me if tone tags are needed.
+- ***DO NOT*** hate on my interests in front of me, if you don't like it that's fine; but i will be upset.
 - c+h freely but if im sitting with my friends please do not do this.
 - Most of the time i am either offtab or s-afk so its better if you whisper to interact, beware it may take me a moment
 - If im making you uncomfortable or anything TELL ME, i am NOT a mind reader.
@@ -20,7 +20,7 @@ one of our main fronters is Finn dont get us mixed up
 ***Pronounz!:***
 
 - I go by He : It : Thing ***PLEASE DO NOT USE THEY***
-- I do not want to be refered to anything other than a MAN please.
+- I do not want to be referred to anything other than a MAN please.
 
  ***Some interestzz:***
  
@@ -36,17 +36,17 @@ one of our main fronters is Finn dont get us mixed up
    
 ***PEOPLE MENTION TIME***
 
-- THE PEOPLE !! ; Noelle, Leen, Phe, Aiden, Mimi I LOVE YOU GUYS
-- Elaine ; Shes so sweet but she pmooooo ily /lh
+- THE PEOPLE !! ; i love yall sm my irl group
+- Elaine ; My gf , Shes so sweet but she pmooooo ily /lh
 - Sapphire / Chishiya; this is literally like my best frined like omg 
 - Tex; HHIHIHI this is like one of my online parents i love him smsmsm hiii
 ![](https://i.postimg.cc/x1FVhQR1/IMG-7961.png)
 
 ***BYI!:***
 
-- I AM VERY BLUNT AND TEND TO BE RUDE WHEN I AM UPSET, this does not mean you;ve done anything, and this DOESNT MEAN IM TAKING IT OUT ON YOU, it is difficult to control how i type or talk in my moments, i too have my own issues.
-- My mood bounces everywhere, AND SO DO MY TOPICS; if im changing topics to quickly or something i said isnt making sense TELL ME, again im NOT a mind reader; if you dont tell me thats on you, not me.
-- Going for everything on this BE HONEST WITH ME, if i am doing things you dont like or make you uncomfortable PLEASE TELL ME i don't intend to make people uncomfortable
+- I AM VERY BLUNT AND TEND TO BE RUDE WHEN I AM UPSET, this does not mean you've done anything, and this DOESNT MEAN IM TAKING IT OUT ON YOU, it is difficult to control how i type or talk in my moments, i too have my own issues.
+- My mood bounces everywhere, AND SO DO MY TOPICS; if im changing topics to quickly or something i said isnt making sense, TELL ME, again im NOT a mind reader; if you dont tell me thats on you, not me.
+- Going for everything on this BE HONEST WITH ME, if i am doing things you dont like or make you uncomfortable, PLEASE TELL ME i don't intend to make people uncomfortable
 - PLEASE NEVER GET MAD AT ME OVER THESE THINGS AS IT IS HARD TO READ PEOPLE OVER A SCREEN, I ALSO HAVE MY OWN ISSUES THAT AFFECT THE WAY I BEHAVE OR ACT, THIS IS NOT AN EXCUSE THIS IS A WARNING.
 - Minors below the age of 13 are on thin ice! I will only allow being friends and nothing MORE!
 - People above the age of 19+ are also on thin ice, I don't like your sketchy intentions unless you're only being friends w me/or talking to me normally ^^
