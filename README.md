@@ -2,7 +2,7 @@
 
 # *WELCOME !!*
 
-![image](https://i.postimg.cc/3Nwy87Pb/IMG-7960.gif)
+![image](https://i.postimg.cc/bv1bKRht/IMG-3772.png)
 
 ***About me! ^^:***
 
@@ -15,7 +15,7 @@ one of our main fronters is Finn dont get us mixed up
 - c+h freely but if im sitting with my friends please do not do this.
 - Most of the time i am either offtab or s-afk so its better if you whisper to interact, beware it may take me a moment
 - If im making you uncomfortable or anything TELL ME, i am NOT a mind reader.
-![](https://i.postimg.cc/x1FVhQR1/IMG-7961.png)
+![](https://i.postimg.cc/j5sWB0cM/IMG-3769.png)
 
 ***Pronounz!:***
 
@@ -40,7 +40,7 @@ one of our main fronters is Finn dont get us mixed up
 - Elaine ; My gf , Shes so sweet but she pmooooo ily /lh
 - Sapphire / Chishiya; this is literally like my best frined like omg 
 - Tex; HHIHIHI this is like one of my online parents i love him smsmsm hiii
-![](https://i.postimg.cc/x1FVhQR1/IMG-7961.png)
+![](https://i.postimg.cc/j5sWB0cM/IMG-3769.png)
 
 ***BYI!:***
 
@@ -58,7 +58,7 @@ one of our main fronters is Finn dont get us mixed up
 - Do not vent to me unless you're a friend/close friend please, and if so pleasse ask !
 - WE DO SMOKE AND DRINK!! If you are uncomfortable with that its best to not interact, as we smoke for our medication. Medicinal.
 
-![](https://i.postimg.cc/x1FVhQR1/IMG-7961.png)
+![](https://i.postimg.cc/j5sWB0cM/IMG-3769.png)
 
 ***DNI:***
 
@@ -71,4 +71,4 @@ one of our main fronters is Finn dont get us mixed up
 - TALKING ABOUT PAST TRAUMA.
 - people we have blocked.
 
-![](https://i.postimg.cc/x1k90qqz/IMG-7962.gif)
+![](https://i.postimg.cc/wT3N6zpS/IMG-3773.png)
